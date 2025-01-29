@@ -7,3 +7,4 @@
 | Nguyễn Trọng Đạt | 110122217           | DA22TTA |
 ### Giảng viên hướng dẫn
 - Thầy: **ThS. Võ Thành C**
+<img align="center" src="https://imgur.com/xDPJLgA" width="100%">
